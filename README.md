@@ -1,2 +1,1 @@
-# Competition
-Competition High Earner
+
